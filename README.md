@@ -3,9 +3,6 @@
 
 - 📫 How to reach me **zlederman00@gmail.com**
 
-- 📄 Know about my experiences [https://resume.creddle.io/resume/ipxh2197e0t](https://resume.creddle.io/resume/ipxh2197e0t)
-
-- ⚡ Fun fact **I like climbing mountains!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
